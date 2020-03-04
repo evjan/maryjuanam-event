@@ -84,6 +84,7 @@ Timeline for the wedding party
 
 ### 1pm ish
 - Em to greet Ona (take Maryam's phone)
+- Peter to greet Suzie the videographer
 
 ### 2:30pm
 - Caterers bump in (no greeting needed)
@@ -138,6 +139,9 @@ Timeline for the wedding party
 
 ### 9:45pm
 - Put out late night snack station
+
+### 10:00pm
+- Suzie the videographer wraps up
 
 ### 10:30pm
 - truffle pig finish
